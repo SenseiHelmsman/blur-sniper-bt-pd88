@@ -1,4 +1,4 @@
-# 
+# advanced bot sniper NFT extensions est le meilleur bot sniper NFT extensions avec analyse des métadonnées et take-profit. Sécurisé, fiable et optimisé pour les stratégies de
 
 
 
